@@ -1,3 +1,13 @@
+Hello Everyone! 
+
+I am inviting you to join our FREE training and workshop on September 16, 2015 at Riveside Los Angeles, CA. 
+Joel Ohara is presenting an informative and entertaining slideshow on his experiences opening a branch office overseas. This is all about Social Marketing Techniques and Local Networking Tips.
+
+We hope you will join us for an evening of great food and good fun to celebrate both the season and a banner business year. There will be lots of wassail and eggnog, and a few surprises as well.
+
+
+Guest Speaker - Joel Ohara at FDCPA Violations (http://www.stopcreditorharassment.org)
+
 TopAnimeStream
 ========
 TopAnimeStream App stream anime & cartoons from popular video streaming sites.
